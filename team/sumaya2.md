@@ -11,8 +11,7 @@
 - Self-discipline 
 
 #### One fact about myself 
-
-
+I have 13 piercings and I love them all.
 
 #### Useful links
 
